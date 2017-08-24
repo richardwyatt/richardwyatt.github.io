@@ -1,2 +1,0 @@
-# richardwyatt.github.io
-Website
